@@ -1,3 +1,14 @@
+# v1.7.0
+
+## Skylinerw
+
+- Has a good feel to it
+- Added some shine
+- No going back now
+- SHIIIIIIIIIIIIIIIIIIIIINE
+
+
+
 # v1.6
 
 ## Dominexis
